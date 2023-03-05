@@ -1,2 +1,2 @@
 # second_semester
-on mt own
+on my own
